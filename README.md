@@ -1,0 +1,56 @@
+# BE:FIRST – BLUE
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+あの日触れた体温
+忘れてたくないの
+こんなに思いが増す毎秒
+また君といたいよ
+いつだって僕の隣に
+いてくれたはず それなのに
+今になって気付いて
+もう少しだけ聞いてよ Baby
+Wait a minute, I need your love
+ねぇ どう思ってんのかな?
+その声、重ねた手 もう覚えてるんだよ
+色付いてくただの日々さえ
+君がいるだけで
+君といるだけで
+Dancing in the blue
+空の上で
+Holding on to you
+溢れ出す Feeling
+側にいる
+それだけで
+高なる感情を受け止めて
+Dancing in the blue
+空の上で
+Holding on to you
+溢れ出す Feeling
+側にいる
+それだけで
+現在(いま) 過去、未来も愛せそう
+感じる毎秒
+You know, I know
+霞んでく程に
+過ぎていく時間に溺れ
+歪(ひず)まぬこの価値に
+いつまでも Catch me
+解けないままでいい
+Baby I can't wait to taste you tonight
+Wait a minute, I need your love
+ねぇ どう思ってんのかな?
+その声、重ねた手 もう覚えてるんだよ
+色付いてくただの日々さえ
+君がいるだけで
+君といるだけで
+Dancing in the blue
+空の上で
+Holding on to you
+溢れ出す Feeling
+側にいる
+それだけで
+現在(いま) 過去、未来も愛せそう
+感じる My heart
+```
